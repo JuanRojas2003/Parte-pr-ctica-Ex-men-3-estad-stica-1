@@ -1,0 +1,1 @@
+# Parte-pr-ctica-Ex-men-3-estad-stica-1
