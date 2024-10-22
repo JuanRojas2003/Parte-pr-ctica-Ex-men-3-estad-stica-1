@@ -1,1 +1,1 @@
-# Parte práctica Exámen 3 - Estadística-1
+# Parte practica Exámen 1 - Estadística-2
